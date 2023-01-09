@@ -20,3 +20,11 @@ Please name years that stand out having anomalous hurricane activity. (-1p)
 Good method! (+1p)
 1.2 & 1.3
 Give description of your results. (-2p)
+
+### Assginment 04 comments - Chenyy
+Great job! I shall give you full point (32/30).
+Your homework is almost perfect. 2 bonus is for your detailed remarks and beautiful figures.
+
+### Assginment 05 comments - Chenyy
+Good job! I shall give you full point with 15 bonus (55/40).
+Your report is neat and organized. You did also good on Q1.4.
